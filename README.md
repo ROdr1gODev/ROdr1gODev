@@ -4,7 +4,7 @@
 
 ## Sobre mim:
 
-**Meu nome é Rogrigo Nascimento**, tenho 30 anos, apesar de não parecer, sou formado Técnico em Mecânica e Técnico em Automação Industrial. **Atualmente curso ADS (Análise e Desenvolvimento de Sistemas)** na Unip, bucando sempre melhorar e aprimorar meus conhecimentos ainda mais, em áreas diversas, visando crescimento pessaol e profissional.
+**Meu nome é Rogrigo Nascimento**, tenho 30 anos, apesar de não parecer rsrs, sou formado Técnico em Mecânica e Técnico em Automação Industrial. **Atualmente curso ADS (Análise e Desenvolvimento de Sistemas)** na Unip, bucando sempre melhorar e aprimorar meus conhecimentos cada vez mais, em áreas diversas, visando crescimento pessaol e profissional.
 Gosto de tudo um pouco, mas o que eu mais faço, ouço musica e assisto séries e filmes
 
 
